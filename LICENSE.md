@@ -1,4 +1,4 @@
-#  
+#  be a lucky block ultimate Script is the best be a lucky block Script, featuring undetectable and fly. Safe and powerful for all your needs.
 
 
 
